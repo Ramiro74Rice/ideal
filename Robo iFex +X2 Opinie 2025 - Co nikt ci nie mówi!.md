@@ -7,7 +7,7 @@ W tej opinii przyjrzę się bliżej Robo iFex +X2, przedstawię jego najważniej
 
 Aby zawsze otrzymywać najnowszy oficjalny link Robo iFex +X2, po kliknięciu trafisz na krótką stronę pośrednią, na której znajdziesz ostateczny link rejestracyjny.
 
-### [🔥 Otwórz swoje konto na Robo iFex +X2 teraz](https://github.com/Ramiro74Rice/Rectangle/tree/main//blob/main/52pl.md)
+### [🔥 Otwórz swoje konto na Robo iFex +X2 teraz](https://github.com/Ramiro74Rice/Rectangle/tree/main/52pl.md)
 ## Podsumowanie
 
 | Aspekt                     | Opis                                      |

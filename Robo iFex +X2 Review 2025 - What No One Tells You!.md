@@ -7,7 +7,7 @@ In this review, I’ll dive deep into what makes Robo iFex +X2 unique, exploring
 
 To ensure you always receive the latest official Robo iFex +X2 link, this click takes you to a short intermediary page where you’ll find the final registration link.
 
-### [👉 Open Your Robo iFex +X2 Account Now](https://github.com/Ramiro74Rice/Rectangle/tree/main//blob/main/52en.md)
+### [👉 Open Your Robo iFex +X2 Account Now](https://github.com/Ramiro74Rice/Rectangle/tree/main/52en.md)
 ## Summary
 
 | Feature                    | Details                               |

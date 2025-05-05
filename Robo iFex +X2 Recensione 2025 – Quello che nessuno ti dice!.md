@@ -7,7 +7,7 @@ In questa recensione, ti guiderò attraverso tutte le caratteristiche di Robo iF
 
 Per assicurarti di ricevere sempre l’ultimo link ufficiale di Robo iFex +X2, questo clic ti indirizza a una breve pagina intermedia dove troverai il link definitivo per la registrazione.
 
-### [👉 Inizia a fare trading su Robo iFex +X2 oggi stesso](https://github.com/Ramiro74Rice/Rectangle/tree/main//blob/main/52it.md)
+### [👉 Inizia a fare trading su Robo iFex +X2 oggi stesso](https://github.com/Ramiro74Rice/Rectangle/tree/main/52it.md)
 ## Riassunto
 
 | Caratteristica               | Dettagli principali                                |

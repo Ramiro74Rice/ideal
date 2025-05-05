@@ -7,7 +7,7 @@ In deze review deel ik mijn inzichten over Robo iFex +X2, gebaseerd op uitgebrei
 
 Om ervoor te zorgen dat je altijd de nieuwste officiële Robo iFex +X2 link ontvangt, word je via deze klik doorgestuurd naar een korte tussenpagina waar je de definitieve registratielink vindt.
 
-### [🔥 Open nu je Robo iFex +X2 account](https://github.com/Ramiro74Rice/Rectangle/tree/main//blob/main/52nl.md)
+### [🔥 Open nu je Robo iFex +X2 account](https://github.com/Ramiro74Rice/Rectangle/tree/main/52nl.md)
 ## Overzicht
 
 | Kenmerk               | Beschrijving                                  |

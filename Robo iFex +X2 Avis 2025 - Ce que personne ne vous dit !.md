@@ -7,7 +7,7 @@ Dans cet article, je vais vous offrir un **avis complet et impartial** sur Robo 
 
 Pour vous assurer de toujours recevoir le dernier lien officiel de Robo iFex +X2, ce clic vous redirige vers une courte page intermédiaire où vous trouverez le lien d’inscription final.
 
-### [🔥 Ouvre ton compte Robo iFex +X2 maintenant](https://github.com/Ramiro74Rice/Rectangle/tree/main//blob/main/52fr.md)
+### [🔥 Ouvre ton compte Robo iFex +X2 maintenant](https://github.com/Ramiro74Rice/Rectangle/tree/main/52fr.md)
 ## Vue d'ensemble
 
 | Éléments clés         | Description                                |

@@ -7,7 +7,7 @@ I denna recension delar jag mina insikter om Robo iFex +X2, från dess funktione
 
 För att du alltid ska få den senaste officiella  Robo iFex +X2-länken leder det här klicket dig till en kort mellanliggande sida där du hittar den slutgiltiga registreringslänken.
 
-### [🔥 Öppna ditt Robo iFex +X2 konto nu](https://github.com/Ramiro74Rice/Rectangle/tree/main//blob/main/52se.md)
+### [🔥 Öppna ditt Robo iFex +X2 konto nu](https://github.com/Ramiro74Rice/Rectangle/tree/main/52se.md)
 ## Sammanfattning
 
 | Aspekt                  | Detaljer                           |
